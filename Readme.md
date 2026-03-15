@@ -1,1 +1,1 @@
-um site muito daora feito por 4 idiotas
+um site muito daora feito por 4 idiotas.
